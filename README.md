@@ -59,3 +59,6 @@ This project involves the financial analysis of CHOLAMANDALAM INVESTMENT & FINAN
 ![Cholamandal finance pdf_page-0003](https://github.com/user-attachments/assets/aabb9677-8962-4ef5-8262-73023ee183a6)
 
 ![Cholamandal finance pdf_page-0004](https://github.com/user-attachments/assets/0c67e866-f005-4659-8374-2a82564d2865)
+
+## Linkedin 
+www.linkedin.com/in/avinashvasisht
